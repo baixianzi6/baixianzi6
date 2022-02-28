@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @baixianzi6
-- 👀 I’m interested in dy and play games for c
+- 👀 I’m interested in dy and play games about c
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me q-1843056116
